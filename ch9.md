@@ -1,0 +1,1 @@
+[YouTube - mathantics - The Distributive Property (11:53)](https://www.youtube.com/watch?v=v-6MShC82ow&list=PLUPEBWbAHUsym6gcZi7rfeysMRxIrnLrf&index=4) Intro to factoring
